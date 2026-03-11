@@ -1,4 +1,4 @@
-# 💫 About Me:
+# About Me:
 # 👋 Hi, I'm George A. T.
 
 💻 Student | Network Enthusiast | Developer  
